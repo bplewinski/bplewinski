@@ -12,4 +12,4 @@
 
 -😄 Pronouns: He/Him
 
--⚡ Fun fact: I spent 7 years living across Europe and Japan, immersing myself in diverse cultures and cuisines while sharpening my problem-solving skills through travel adventures
+-⚡ Fun fact: I spent 7 years living across Europe and Japan
