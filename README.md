@@ -4,7 +4,7 @@
 
 -🌱 I’m currently diving deep into React to enhance my front-end development skills and master aspects of javascript.
 
--📚 I have recent experience in Java, Python, Javascript, MySQL, Android Studio, React, PyCharm, NetBeans, and more  
+-📚 Experienced in Java, Python, Javascript, MySQL, Android Studio, React, PyCharm, NetBeans, and more  
 
 -💞️ I’m looking to collaborate on innovative web development projects where I can apply my expertise and learn from fellow developers.
 
