@@ -10,6 +10,4 @@
 
 -📫 How to reach me: carrbrian13@gmail.com
 
--😄 Pronouns: He/Him
-
 -⚡ Fun fact: I spent 7 years living across Europe and Japan
